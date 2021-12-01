@@ -1,0 +1,2 @@
+# smy
+no way home
